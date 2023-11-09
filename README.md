@@ -4,7 +4,7 @@
 
 Turma:*2° B*
 
-*Nome*: Matheus ALves Toledo *n°*:38
+*Nome*: Matheus Alves Toledo *n°*:38
 
 *Nome*: Guilherme de Lima Mendes *n°*: 19
 
